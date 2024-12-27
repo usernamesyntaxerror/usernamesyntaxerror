@@ -1,1 +1,1 @@
-i cant even write lua or python 
+stupid name for a newbie like me
